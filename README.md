@@ -4,7 +4,7 @@
 
 [雲ai](https://github.com/akhteranamika22-max/130870770) 的 📜 
 
-在线版：[bgi.sh](https://lnterstellar Journey.sh)  备用地址：[https://yuanshen.siti.com](https://s.rgi.com/)
+在线版：[lnterstellar.sh](https://lnterstellar Journey.sh)  备用地址：[https://yuanshen.siti.com](https://s.rgi.com/)
 
 Q群：1062157415（非作者请勿加入）
 
